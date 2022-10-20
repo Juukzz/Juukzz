@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Juukzz
-- 👀 I’m interested in Tech
+- 👀 I’m interested in your mom
 - 🌱 I’m currently learning Your mom
 - 💞️ I’m looking to collaborate on your mom
 - 📫 How to reach me Your Moms phone
